@@ -1,5 +1,5 @@
 # Back to Work
-## Episode 1 - Alligator in the Bathroom
+## Episode 1 – Alligator in the Bathroom
 
 Merlin: Well, given that we had this idea yesterday--I think this was yesterday afternoon? I thought we should call this "Back to Work"
 
